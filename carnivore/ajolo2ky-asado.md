@@ -23,3 +23,6 @@ Add the beef, chorizos, morcilla, and cheese to the grill at the same time to br
 First off the grill will be the provoleta, cut into delicious molten squares to be passed. Next up, the morcilla, as it only needs to be warmed through before serving. Then the chorizos, served with mini-baguettes and a good chimichurri to make the classic choripan. (Of course the chef remembered to toast the bread lightly on the grill for a minute before serving the sausages.)
 
 Finally the meat, the climax of the event.
+
+## Citation
+http://thelatinkitchen.com/article/argentine-asado-step-step
